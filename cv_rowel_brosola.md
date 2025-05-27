@@ -2,7 +2,7 @@
 
 **Location:** Taguig, Philippines  
 **Phone:** (+63) 956 045 3318  
-**Email:** rowelbrosola@gmail.com
+**Email:** rowelvbrosola@gmail.com
 
 ---
 
